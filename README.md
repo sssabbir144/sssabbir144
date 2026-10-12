@@ -1,3 +1,5 @@
+<img src="cover-banner.jpg" alt="Sabbir Hossin — AI Cartoon Video Specialist" width="100%">
+
 # Hi there, I'm Sabbir Hossin 👋
 
 🎬 **AI Cartoon Video Specialist** — I create custom 2D & 3D cartoon animations, short films and character animations for brands, creators and storytellers.
