@@ -4,6 +4,8 @@
 
 🎬 **AI Cartoon Video Specialist** — I create custom 2D & 3D cartoon animations, short films and character animations for brands, creators and storytellers.
 
+🟢 **Available for new projects** — I reply within 24 hours.
+
 ## 🎨 What I do
 
 - **3D Cartoon Animation** — cinematic short films & character stories
@@ -28,5 +30,12 @@ Story → Storyboard → Style frames → Animation → Sound & music → Final 
 
 ## 💬 Let's work together
 
-Open for custom animation commissions — message me on any platform above.
-Fixed-price projects · Professional delivery · On time, ইনশাআল্লাহ.
+**Have an animation project in mind? Let's make it real.**
+
+I help brands, YouTubers and storytellers turn ideas into scroll-stopping cartoons — from a 30-second short to a full animated film.
+
+- ✅ Fixed-price projects — no surprises
+- ✅ Professional delivery, on time, ইনশাআল্লাহ
+- ✅ 5+ years of animation experience · 17+ films in my portfolio
+
+📩 Message me on any platform above — I usually reply within 24 hours.
